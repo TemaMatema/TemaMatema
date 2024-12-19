@@ -6,3 +6,6 @@
 - Pronouns: T e m a M a t e m a
 - Fun fact: I love snowboarding / I wanna some coffe
 - Mood: Sleep...
+
+
+- Please, don't steal my progects...
